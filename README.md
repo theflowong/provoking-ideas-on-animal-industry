@@ -16,3 +16,12 @@ Comic by Swiss Bio Farmer, "Killing Cows on the Pasture Where They Are Happy": h
   - remember another parallel of euthanizing a baby because parents were too busy to take care of it. it's a painless death, but is it still considered ethical?
 
 - animals: less privilege than humans
+
+### Pigs have the same intelligence as human 3-year-olds
+- excellent long-term memories
+- ability to complete mazes, recognize symbols, numerical intelligence
+- show empathy, learn from groups
+
+https://escholarship.org/uc/item/8sx4s79c#page-1
+
+http://www.dailymail.co.uk/sciencetech/article-3122303/Move-Lassie-IQ-tests-reveal-pigs-outsmart-dogs-chimpanzees.html
